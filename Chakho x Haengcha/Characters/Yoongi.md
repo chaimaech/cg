@@ -31,11 +31,16 @@ His trauma tore open his Ki channels, permanently altering him.
 # **II. APPEARANCE**
 
 * Pale, soft-featured, with faint scars tracing from his temples to below his eyes
-* Eyes clouded, but strangely luminous—especially when Ki pulses
-* Always carries a broom made of wood and copper thread (his makeshift Ki-conductor)
-* Wears plain street clothes: muted greys and washed-out blues
+* Longish hair tied loosely; strands often fall across his face
+* Face is serene, but his posture has tension — like someone always bracing for another shockwave
+* Scars around his eyes have softened with age but remain visible, eyes clouded, but strangely luminous—especially when Ki pulses
+* Always carries a worn broom made of wood and copper thread (his makeshift Ki-conductor), carefully repaired many times, reinforced along the shaft with metal bands
+* Lean, understated, and quietly elegant despite his shabby clothing in muted greys and washed-out blues
 * Movements are slow, deliberate, surprisingly graceful for someone blind
 * When listening deeply, he tilts his head and breathes as though tasting the air
+
+Yoongi has the unassuming presence of someone who wants to disappear —
+but the dignity of someone raised royal still lingers in the slope of his shoulders.
 
 There’s an uncanny stillness about him.
 People avoid him without knowing why.
@@ -68,6 +73,13 @@ Quiet, introspective, and soft-spoken — the kind of presence you don’t notic
 * Emotional numbness as a coping mechanism
 * Guilt over surviving when his family did not
 * Has never fully processed the night of the coup
+
+### **What Age Has Given Him**
+
+* A calm authority that others trust instantly
+* The ability to comfort without words
+* A quiet courage that isn’t youthful recklessness but lived experience
+* A moral compass forged in pain but guided by compassion
 
 ---
 
@@ -211,19 +223,17 @@ He is fueled by *every cry he ever felt in the dark*.
 
 A scene idea that encapsulates him:
 
-> Yoongi is sweeping a quiet alley at dawn.
-> The bristles shiver—Ki trembles beneath his feet.
-> His breath catches.
->
-> Somewhere across the city, a spirit screams its last.
->
-> Yoongi drops to his knees, clutching his chest as if stabbed.
-> Tears slip down his face.
->
-> “Another one…
-> I’m sorry… I’m coming. I’ll stop it. I promise.”
->
-> He rises, steadying himself with the broom, and begins walking—
->
+> “Another one.”
+
+> Yoongi’s voice is barely a whisper as he grips his broom like a crutch.
+> Pain ripples through his Ki—sharp, urgent.
+> A spirit somewhere in the city is dying.
+
+> He inhales slowly, gathering strength.
+> At twenty-eight, the pain is heavier than it used to be.
+
+> “Hold on,” he murmurs to no one and everyone at once.
+
+> Then he starts walking, steps sure despite the blindness—
 > following the echo of death only he can hear.
 
